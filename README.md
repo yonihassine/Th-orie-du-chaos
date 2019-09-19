@@ -1,1 +1,1 @@
-# Th-orie-du-chaos
+# Theorie-du-chaos
